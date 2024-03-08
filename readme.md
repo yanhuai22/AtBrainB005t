@@ -1,0 +1,1 @@
+At BrainBoost, we're passionate about helping you unlock your full potential. Our platform offers a wide range of courses and resources that are designed to help you improve your memory, focus, and cognitive abilities.
